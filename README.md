@@ -45,3 +45,11 @@ Each session is detailed, concept-driven, and practical, focusing on why things 
  • Professionals revisiting Python fundamentals
  
  • Tamil learners who prefer deep explanations
+
+
+🔔 Stay Connected
+
+📺 YouTube: https://www.youtube.com/@DemystifywithAjay
+
+
+💼 LinkedIn: https://www.linkedin.com/in/ajantha-devi-vairamani/
